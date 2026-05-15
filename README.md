@@ -1,6 +1,6 @@
 # FuckYouFox
 &lt;3
-Links i am took over,
+Links i took over,
 
 https://kirka-1o.netlify.app/
 
